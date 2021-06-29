@@ -1,2 +1,2 @@
-# Yax Detailing
-This is going to be the website for Yax Detailing
+# Yax Luxury Detailing
+This is going to be the website for Yax Luxury Detailing
